@@ -1,1 +1,1 @@
-# HI THIS IS KARTHIK M D
+# Hello, I'm Karthik M D
